@@ -13,7 +13,9 @@ pls cuddle when i'm offtab/asleep! it means a lot to me ^_^
   ♡
   
 <div align="center"> 
-<img width="220" height="350" alt="rockygrace" src="https://github.com/user-attachments/assets/23e2f1ab-99b6-462a-b388-c5d3b06c9a80" />
+<img width="420" height="280" alt="image-removebg-preview (4)" src="https://github.com/user-attachments/assets/fd2c6316-2f97-4a88-bfb0-58a97c2cdf54" />
+
+
 
 
 <div align="center"> 

@@ -17,6 +17,8 @@ pls cuddle when i'm offtab/asleep! it means a lot to me ^_^
 
 
 <div align="center"> 
-ugh i wish someone could gift me a holland march or sebastian wilder pony....
-<div align="center"> 
-sighs loudly. . .sIGHS 👀
+PONY TOWN'S OFFICIAL RYLAND GRACE :3 THANK U <a href="https://github.com/pt-walk-of-fame" target="_blank">pt walk of fame</a>
+
+
+<div align="center">  
+<img width="400" height="65" alt="image" src="https://github.com/user-attachments/assets/8ebb4531-96d6-4055-bd16-065ce8dbc06d" />

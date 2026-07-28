@@ -24,3 +24,8 @@ PONY TOWN'S OFFICIAL RYLAND GRACE :3 THANK U <a href="https://github.com/pt-walk
 
 <div align="center">  
 <img width="400" height="65" alt="image" src="https://github.com/user-attachments/assets/8ebb4531-96d6-4055-bd16-065ce8dbc06d" />
+
+<div align="center">
+<img width="400" height="30" alt="image" src="https://github.com/user-attachments/assets/0902149e-6bcc-42b7-a99a-f2312d3664e7" />
+<div align="center">
+  <a href="https://github.com/pt-hall-of-media" target="_blank">pt-hall-of-media</a>

@@ -14,7 +14,7 @@
 pls cuddle when i'm offtab/asleep! it means a lot to me ^_^
 
 <div align="center"> 
-  ♡ <a href="https://cartoonjax.atabook.org" target="_blank">ata</a> | <a href="https://coltlandtwins.straw.page" target="_blank">straw</a>
+  ♡ <a href="https://cartoonjax.atabook.org" target="_blank">ata</a> | <a href="https://looneyjax.straw.page" target="_blank">straw</a>
 
 <div align="center"> 
 ‎ 

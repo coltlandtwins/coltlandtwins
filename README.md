@@ -19,13 +19,8 @@ pls cuddle when i'm offtab/asleep! it means a lot to me ^_^
 
 
 <div align="center"> 
-PONY TOWN'S OFFICIAL RYLAND GRACE :3 THANK U <a href="https://github.com/pt-walk-of-fame" target="_blank">pt walk of fame</a>
-
-
-<div align="center">  
-<img width="400" height="65" alt="image" src="https://github.com/user-attachments/assets/8ebb4531-96d6-4055-bd16-065ce8dbc06d" />
-
-<div align="center">
-<img width="400" height="30" alt="image" src="https://github.com/user-attachments/assets/0902149e-6bcc-42b7-a99a-f2312d3664e7" />
-<div align="center">
+pony town's ryland grace and ryan gos. cinematic universe !!
+  
+<div align="center"> 
+<a href="https://github.com/pt-walk-of-fame" target="_blank">pt walk of fame</a> | 
   <a href="https://github.com/pt-hall-of-media" target="_blank">pt-hall-of-media</a>

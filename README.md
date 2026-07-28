@@ -9,20 +9,22 @@ pls cuddle when i'm offtab/asleep! it means a lot to me ^_^
 <div align="center"> 
   ♡ <a href="https://cartoonjax.atabook.org" target="_blank">ata</a> | <a href="https://coltlandtwins.straw.page" target="_blank">straw</a>
 
-  
+<div align="center"> 
+‎ 
 <div align="center"> 
 <img width="498" height="281" alt="smile-ryland-grace" src="https://github.com/user-attachments/assets/1af78afa-0c5c-4124-bff3-cfd62ffedea8" />
 
-
-
-
 <div align="center"> 
+‎ 
+  <div align="center"> 
 pony town's ryland grace and ryan gos. cinematic universe !!
   
 <div align="center"> 
 <a href="https://github.com/pt-walk-of-fame" target="_blank">pt-walk-of-fame</a> | 
   <a href="https://github.com/pt-hall-of-media" target="_blank">pt-hall-of-media</a>
   
+<div align="center"> 
+‎ 
 <div align="center"> 
   ♡
 <div align="center"> 

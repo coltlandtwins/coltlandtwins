@@ -1,6 +1,3 @@
-<div align="center"> 
-
-![](https://komarev.com/ghpvc/?username=coachdictatorer&color=blue&style=plastic&label=GOSLINGS)
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -25,3 +22,9 @@ pony town's ryland grace and ryan gos. cinematic universe !!
 <div align="center"> 
 <a href="https://github.com/pt-walk-of-fame" target="_blank">pt-walk-of-fame</a> | 
   <a href="https://github.com/pt-hall-of-media" target="_blank">pt-hall-of-media</a>
+  
+<div align="center"> 
+  ♡
+<div align="center"> 
+
+![](https://komarev.com/ghpvc/?username=coachdictatorer&color=blue&style=plastic&label=GOSLINGS)

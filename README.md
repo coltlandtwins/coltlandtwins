@@ -19,7 +19,7 @@ pls cuddle when i'm offtab/asleep! it means a lot to me ^_^
 <div align="center"> 
 ‎ 
 <div align="center"> 
-<img width="450" height="250" alt="smile-ryland-grace" src="https://github.com/user-attachments/assets/1af78afa-0c5c-4124-bff3-cfd62ffedea8" />
+<img width="300" height="170" alt="smile-ryland-grace" src="https://github.com/user-attachments/assets/1af78afa-0c5c-4124-bff3-cfd62ffedea8" />
 
 <div align="center"> 
 ‎ 

@@ -17,7 +17,8 @@ pls cuddle when i'm offtab/asleep! it means a lot to me ^_^
 <div align="center"> 
 ‎ 
 <div align="center"> 
-<img width="300" height="230" alt="tumblr_17d952591a4347d7ce1c92b0607fce30_5b91aa19_540" src="https://github.com/user-attachments/assets/a1f26a4b-45a9-4f1f-a2b6-09c4bc6cdb1a" />
+<img width="350" height="200" alt="buddies-ryland-grace" src="https://github.com/user-attachments/assets/ddf7cd25-c772-4379-bd67-efce471f86c1" />
+
 
 
 <div align="center"> 
